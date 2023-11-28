@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I’m passionate about building great products that make people’s lives easier. With this spirit, i am also being a trainer. I have over 12 years of experience developing innovative products for some companies.
+
+I grew up in Jakarta, i am also an urban farmer and moslem preneur and I’m excited to partner with you!
+
 <!--
 **ahsai001/ahsai001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
